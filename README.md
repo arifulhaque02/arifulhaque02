@@ -9,7 +9,7 @@
 - ⚡ Fun fact: *I run a YouTube Channel*
 
 ## About Me
-I completed my Bachelor of Science in Naval Architecture and Offshore Engineering from Bangabandhu Sheikh Mujibur Rahman Maritime University, Bangladesh (BSMRMU). I am passionate about learning new skills and adapting to any environment. In addition, I'd like to gain additional experience to broaden my knowledge. I like being a motivated individual and team player with people from all backgrounds, which helps me develop my leadership skills. I have a research interest in Finite Element Analysis (FEA), Fluid Mechanics, Structural Mechanics, Risk Analysis and Safety Management. Enthusiastic for innovation, and research. I like to spend my free time being active and adventuring outdoors with friends and family. I love to run, hike and climb.
+I completed my Bachelor of Science in **Naval Architecture and Offshore Engineering** from **Bangabandhu Sheikh Mujibur Rahman Maritime University, Bangladesh (BSMRMU)**. I am passionate about learning new skills and adapting to any environment. In addition, I'd like to gain additional experience to broaden my knowledge. I like being a motivated individual and team player with people from all backgrounds, which helps me develop my leadership skills. I have a research interest in **Finite Element Analysis (FEA), Fluid Mechanics, Structural Mechanics, Artificial Intelligence, Risk Analysis and Safety Management**. Enthusiastic for innovation, and research. I like to spend my free time being active and adventuring outdoors with friends and family. I love to run, hike and climb.
 
 Feel free to connect with me at
 𝐄𝐦𝐚𝐢𝐥: arifulhaque316@gmail.com
