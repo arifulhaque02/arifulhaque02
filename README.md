@@ -8,6 +8,13 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: *I run a YouTube Channel*
 
+## About Me
+I completed my Bachelor of Science in Naval Architecture and Offshore Engineering from Bangabandhu Sheikh Mujibur Rahman Maritime University, Bangladesh (BSMRMU). I am passionate about learning new skills and adapting to any environment. In addition, I'd like to gain additional experience to broaden my knowledge. I like being a motivated individual and team player with people from all backgrounds, which helps me develop my leadership skills. I have a research interest in Finite Element Analysis (FEA), Fluid Mechanics, Structural Mechanics, Risk Analysis and Safety Management. Enthusiastic for innovation, and research. I like to spend my free time being active and adventuring outdoors with friends and family. I love to run, hike and climb.
+
+Feel free to connect with me at
+𝐄𝐦𝐚𝐢𝐥: arifulhaque316@gmail.com
+𝐏𝐞𝐫𝐬𝐨𝐧𝐚𝐥 𝐒𝐢𝐭𝐞: https://sites.google.com/view/ariful-haque/
+
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/arifulhaque02) [![Medium](https://img.shields.io/badge/Medium-12100E?logo=medium&logoColor=white)](https://medium.com/@https://ariful-haque.medium.com/) [![Quora](https://img.shields.io/badge/Quora-%23B92B27.svg?logo=Quora&logoColor=white)](https://quora.com/profile/https://www.quora.com/profile/Ariful-Haque-262-1) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@https://www.youtube.com/@arifulhaque477) 
 
