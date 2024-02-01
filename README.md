@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋  [![](https://visitcount.itsvg.in/api?id=arifulhaque02&icon=0&color=0)](https://visitcount.itsvg.in)
 
 - 🔭 I completed my Bachelor of Science in **Naval Architecture and Offshore Engineering** from Bangabandhu Sheikh Mujibur Rahman Maritime University, Bangladesh (BSMRMU)
 - 👯 I’m looking to collaborate on **Artificial Intelligence (AI)**
